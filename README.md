@@ -1,2 +1,2 @@
 # jjmartinez22github.io
-favorite desinations of the map
+favorite destinations on a map
